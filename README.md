@@ -6,8 +6,6 @@
 
 🎶 Love singing in my free time.
 
-🌐 Passionate about contributing to open source projects. 
-
 📫 Connect with me on LinkedIn and Instagram: [LinkedIn](https://www.linkedin.com/in/dipali-wagh/) | [Instagram](https://www.instagram.com/dipali._.wagh/)
 
 😄 Pronouns: She/Her
