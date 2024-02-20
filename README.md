@@ -8,6 +8,4 @@
 
 📫 Connect with me on LinkedIn and Instagram: [LinkedIn](https://www.linkedin.com/in/dipali-wagh/) | [Instagram](https://www.instagram.com/dipali._.wagh/)
 
-😄 Pronouns: She/Her
-
 ⚡ Fun fact: I believe in the power of coding to create meaningful solutions!
