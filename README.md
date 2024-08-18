@@ -1,4 +1,4 @@
-## Hi there 👋
+ Hello Everyone 👋
 
 <!--
 **dipaliwagh22/dipaliwagh22** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
